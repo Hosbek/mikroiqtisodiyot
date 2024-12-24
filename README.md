@@ -1,0 +1,2 @@
+# mikroiqtisodiyot
+kerak
